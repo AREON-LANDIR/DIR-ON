@@ -1,4 +1,4 @@
-# DIR‑ON  
+# ÐIR‑0N  
 ### UBUNTU FLEX‑FLUX Project — v1
 
 A first signal.  
