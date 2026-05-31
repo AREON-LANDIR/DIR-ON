@@ -5,7 +5,7 @@ A first signal.
 A quiet handshake.  
 A marker at the edge of a larger work.
 
-DIR‑ON stands as an open doorway,  
+ÐIR‑0N stands as an open doorway,  
 a public echo of a project  
 that grows in a private space  
 where structure and flux intertwine.
