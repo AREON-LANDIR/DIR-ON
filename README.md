@@ -12,6 +12,6 @@ where structure and flux intertwine.
 
 This repository is only the beginning —  
 a small stone carried here by flux, waiting for those who wander,  
-the way remains open to whatever may unfold, o7 staat, inacht gehouden,
+the way remains open to whatever may unfold, o7 staat, inacht gevonden,
 ONS CORP
 
